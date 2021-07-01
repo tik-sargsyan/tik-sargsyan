@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on pair to pair learning.
 - 🤔 I’m looking for help with leadership experience.
 - 💬 Ask me about whatever you want.
-- 📫 How to reach me: Linkedin
+- 📫 How to reach me: Linkedin - https://www.linkedin.com/in/i-am-tigransargsyan/
 - 😄 Pronouns:
 - ⚡ Fun fact:
 -->
